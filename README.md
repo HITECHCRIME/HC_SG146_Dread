@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# MOTHNODE_ Dread (prod. Mystxry)
 
 **Listen now:** 
 
@@ -9,9 +9,9 @@
 [FREE] HARD | XXXTENTACION x CRAIG XEN DISTORTED TYPE BEAT | "BENZ" | [PROD. MYSTXRY]
 https://www.youtube.com/watch?v=O_vLMmPoEZ0
 
-**Title:**  / **Featuring:** 
+**Title:** Dread / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:** Mystxry / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
