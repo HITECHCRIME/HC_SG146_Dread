@@ -16,8 +16,28 @@ https://www.youtube.com/watch?v=O_vLMmPoEZ0
 ## Lyrics
 
 ```
+"quick
+come on
+come on
+come on 
+come on
+
+go go go
+get in get in
+yeah, go in"
+
+haaooooooo- ooo   - oooo
+memory perished  for
+all i know 
+
 x
 
+i don't even wanna know
+so alone aye, i know
+
+so alone, fired on
+spiral on how did i 
+fuck it up
 ```
 
 ## Lyrics Testing Ground
