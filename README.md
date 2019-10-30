@@ -37,3 +37,5 @@ x
 ## Notes
 
 ## Music Video
+
+Beginning is a metanarrative where an automaton is presented on stage while the real human controls it from behind the scenes using neural tech. Glitches emerge and the bot slowly disintegrates on stage. Performer vs simulation of a performer. Fear of public. As performance goes on voice starts distorting. Bot goes into rage.
