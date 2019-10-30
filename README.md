@@ -38,6 +38,9 @@ so alone aye, i know
 so alone, fired on
 spiral on how did i 
 fuck it up
+where is the switch 
+to turn me off
+
 ```
 
 ## Lyrics Testing Ground
